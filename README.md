@@ -1,2 +1,1 @@
-﻿# pagina
-# Glame
+Hello! my name is Joaquin Guajardo
