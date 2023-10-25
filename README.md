@@ -1,1 +1,1 @@
-Hello! my name is Joaquin Guajardo
+Hello! Hello! This is my project "GLAME" it is a page for selling t-shirts, which in the future I want to make a reality, I have thought about this project for a long time and I took it digital to practice what I want to dedicate myself to,
